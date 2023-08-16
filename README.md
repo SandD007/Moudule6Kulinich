@@ -1,0 +1,1 @@
+# Moudule6Kulinich
